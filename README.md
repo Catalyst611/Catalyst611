@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **202411998324@mail.bnu.edu.cn**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
